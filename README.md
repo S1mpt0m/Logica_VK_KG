@@ -1,1 +1,0 @@
-# Logica_VK_KG
